@@ -1,1 +1,1 @@
-# Mabgaweb-2
+# https://manga.readster.site/
